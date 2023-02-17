@@ -1,0 +1,1 @@
+No har me da kjekt.md
